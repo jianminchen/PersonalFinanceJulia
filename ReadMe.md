@@ -4,7 +4,7 @@ The repository is only for study and research purpose. I like to share the exper
 
 I experienced the tough time in USA after 2017. USA was in recesison in 2009, a lot of property in Florida was underwater. I managed to make a living from August 2008 to April 2010, live on savings and with low interest rate of home equity loan. 
 
-I had difficulty time to adapt and hop on the opportunity in the city of Vancouver. Although at that time I thought that I did right thing in Nov. 2011, actually I missed the opportunity I had in Canada. 
+I had difficulty time to adapt and hop on the opportunity in the city of Vancouver. Although at that time I thought that I did right thing in Nov. 2011, I got loan approved but I did not take it. Actually I missed the opportunity I had in Canada. 
 
 I need to do a few study related to Canada banking comparing to USA banking. I need to write down my questions, and then look up Youtube.com videos, learn a few terms about passive income, and rental income, and all other benefits to have a full time job offer at hand. 
 
