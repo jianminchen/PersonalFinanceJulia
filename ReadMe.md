@@ -8,4 +8,5 @@ I had difficulty time to adapt and hop on the opportunity in the city of Vancouv
 
 I need to do a few study related to Canada banking comparing to USA banking. I need to write down my questions, and then look up Youtube.com videos, learn a few terms about passive income, and rental income, and all other benefits to have a full time job offer at hand. 
 
+At that time, everything was so cheap compared to 2018 November. 
 
