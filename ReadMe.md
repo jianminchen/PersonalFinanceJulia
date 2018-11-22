@@ -10,3 +10,9 @@ I need to do a few study related to Canada banking comparing to USA banking. I n
 
 At that time, following buying low selling high principle, the price was low back in 2011. 
 
+**Nov. 19, 2018**<br>
+
+It is the first time I did analyze the net income from 1999 to 2001, and then I wrote a blog about my analysis and also my understanding of life and finance. 
+
+[Personal finance analysis from 1999 to 2001](http://juliachencoding.blogspot.com/2018/11/personal-finance-analysis-from-1999-to.html)<br>
+
