@@ -11,6 +11,13 @@ I need to do a few study related to Canada banking comparing to USA banking. I n
 
 At that time, following buying low selling high principle, the price was low back in 2011. 
 
+Blogs about my home equity loan case study. <br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+
+
 **Nov. 19, 2018**<br>
 
 It is the first time I did analyze the net income from 1999 to 2001, and then I wrote a blog about my analysis and also my understanding of life and finance. 
