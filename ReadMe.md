@@ -17,6 +17,9 @@ Blogs about my home equity loan case study. <br>
 []()<br>
 []()<br>
 
+**Nov.14 2018**<br>
+Get my mint app to check my accounts. Share my dormant account lesson in my blog. 
+[Mint app](http://juliachencoding.blogspot.com/2018/11/mint-app.html)<br>
 
 **Nov. 19, 2018**<br>
 
