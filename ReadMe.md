@@ -13,7 +13,7 @@ At that time, following buying low selling high principle, the price was low bac
 
 Blogs about my home equity loan case study. <br>
 [2009 my home equity loan account](http://juliachencoding.blogspot.com/2018/11/2009-my-home-equity-loan-account.html)<br>
-[]()<br>
+[Personal finance 2010](http://juliachencoding.blogspot.com/2018/11/personal-finance-2010.html)<br>
 []()<br>
 []()<br>
 
