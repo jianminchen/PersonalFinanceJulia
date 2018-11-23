@@ -33,6 +33,8 @@ Get my mint app to check my accounts. Share my dormant account lesson in my blog
 **Nov. 17, 2018**<br>
 [Home equity loan 2006](http://juliachencoding.blogspot.com/2018/11/home-equity-loan-2006.html)<br>
 [Case study: 2015 my home search](http://juliachencoding.blogspot.com/2018/11/case-study-2015-my-home-search.html)<br>
+[10 lessons to learn using home equity line](http://juliachencoding.blogspot.com/2018/11/10-lessons-to-learn-using-home-equity.html)<br>
+[It is people skills](http://juliachencoding.blogspot.com/2018/11/it-is-people-skills.html)<br>
 
 **Nov. 19, 2018**<br>
 
