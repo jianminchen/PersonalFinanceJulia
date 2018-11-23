@@ -17,7 +17,10 @@ Blogs about my home equity loan case study. <br>
 []()<br>
 []()<br>
 
-**Nov.14 2018**<br>
+**Nov. 10, 2018**<br>
+[https://juliachencoding.blogspot.com/2018/11/case-study-abbotsford-one-bedroom-condo.html](https://juliachencoding.blogspot.com/2018/11/case-study-abbotsford-one-bedroom-condo.html)<br>
+
+**Nov.14, 2018**<br>
 Get my mint app to check my accounts. Share my dormant account lesson in my blog. <br>
 [Mint app](http://juliachencoding.blogspot.com/2018/11/mint-app.html)<br>
 
