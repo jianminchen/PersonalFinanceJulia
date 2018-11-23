@@ -18,6 +18,7 @@ Blogs about my home equity loan case study. <br>
 []()<br>
 
 **Nov. 10, 2018**<br>
+[It takes a village to build an investment mindset](http://juliachencoding.blogspot.com/2018/11/it-takes-village-to-build-investment.html)<br>
 [case study abbotsford one bedroom condo](https://juliachencoding.blogspot.com/2018/11/case-study-abbotsford-one-bedroom-condo.html)<br>
 
 **Nov. 12, 2018**<br>
