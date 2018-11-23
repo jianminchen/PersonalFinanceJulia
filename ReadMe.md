@@ -20,11 +20,15 @@ Blogs about my home equity loan case study. <br>
 **Nov. 10, 2018**<br>
 [case study abbotsford one bedroom condo](https://juliachencoding.blogspot.com/2018/11/case-study-abbotsford-one-bedroom-condo.html)<br>
 
+**Nov. 12, 2018**<br>
+[Baby step to start my real estate research](http://juliachencoding.blogspot.com/2018/11/baby-step-to-start-my-real-estate.html)<br>
+
 **Nov.14, 2018**<br>
 Get my mint app to check my accounts. Share my dormant account lesson in my blog. <br>
 [Mint app](http://juliachencoding.blogspot.com/2018/11/mint-app.html)<br>
 
 **Nov. 17, 2018**<br>
+[Home equity loan 2006](http://juliachencoding.blogspot.com/2018/11/home-equity-loan-2006.html)<br>
 [Case study: 2015 my home search](http://juliachencoding.blogspot.com/2018/11/case-study-2015-my-home-search.html)<br>
 
 **Nov. 19, 2018**<br>
