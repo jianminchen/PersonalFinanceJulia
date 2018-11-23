@@ -39,5 +39,8 @@ It is the first time I did analyze the net income from 1999 to 2001, and then I 
 
 [Personal finance analysis from 1999 to 2001](http://juliachencoding.blogspot.com/2018/11/personal-finance-analysis-from-1999-to.html)<br>
 
+**Nov. 20, 2018**<br>
+[Save money up to $100,000 dollars](http://juliachencoding.blogspot.com/2018/11/save-money-up-to-100000-dollars.html)<br>
+
 **Nov. 21, 2018**<br>
 [Do I live under my mean in Canada?](http://juliachencoding.blogspot.com/2018/11/do-i-live-under-my-mean-in-canada.html)<br>
