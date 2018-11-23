@@ -12,7 +12,7 @@ I need to do a few study related to Canada banking comparing to USA banking. I n
 At that time, following buying low selling high principle, the price was low back in 2011. 
 
 Blogs about my home equity loan case study. <br>
-[]()<br>
+[2009 my home equity loan account](http://juliachencoding.blogspot.com/2018/11/2009-my-home-equity-loan-account.html)<br>
 []()<br>
 []()<br>
 []()<br>
