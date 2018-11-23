@@ -24,6 +24,9 @@ Blogs about my home equity loan case study. <br>
 Get my mint app to check my accounts. Share my dormant account lesson in my blog. <br>
 [Mint app](http://juliachencoding.blogspot.com/2018/11/mint-app.html)<br>
 
+**Nov. 17, 2018**<br>
+[Case study: 2015 my home search](http://juliachencoding.blogspot.com/2018/11/case-study-2015-my-home-search.html)<br>
+
 **Nov. 19, 2018**<br>
 
 It is the first time I did analyze the net income from 1999 to 2001, and then I wrote a blog about my analysis and also my understanding of life and finance. 
