@@ -54,5 +54,5 @@ It is the first time I did analyze the net income from 1999 to 2001, and then I 
 [Do I live under my mean in Canada?](http://juliachencoding.blogspot.com/2018/11/do-i-live-under-my-mean-in-canada.html)<br>
 
 
-**Dec. 13, 2018**
+**Dec. 13, 2018**<br>
 [Case study: 2002 $1800 US dollar laptop purchase](https://github.com/jianminchen/PersonalFinanceJulia/tree/master/2002%20SONY%20laptop%20purchase)<br>
