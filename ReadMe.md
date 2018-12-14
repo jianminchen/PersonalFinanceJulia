@@ -9,7 +9,9 @@ I ask two things from you, Lord. Don't refuse me before I die. 8 Keep me from ly
 
 **Psalm 37:25**<br>
 
-I have been young, and now am old, yet I have not seen the righteous forsaken or his children begging for bread.
+I have been young, and now am old, yet I have not seen the righteous forsaken or his children begging for bread.<br>
+
+**My bible study in Boca Raton home in 2008** <br>
 My christian friends in Boca Raton shared the verse with me when I struggled to file the appeal for leave case in Federal court of Canada in 2009. I held a small bible study at my home in Boca Raton, Florida. 
 
 
