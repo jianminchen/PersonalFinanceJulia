@@ -4,6 +4,15 @@ the richest man in Babylon, Georges Clason
 
 The repository is only for study and research purpose. I like to share the experience to help those immigrants to learn better about Canadian finance, US recession in 2009, and transition from USA to Canada. <br>
 
+**Proverb 30:7-9**<br>
+I ask two things from you, Lord. Don't refuse me before I die. 8 Keep me from lying and being dishonest. And don't make me either rich or poor; just give me enough food for each day. 9 If I have too much, I might reject you and say, 'I don't know the Lord.' If I am poor, I might steal and disgrace the name of my God.<br>
+
+**Psalm 37:25**<br>
+
+I have been young, and now am old, yet I have not seen the righteous forsaken or his children begging for bread.
+My christian friends in Boca Raton shared the verse with me when I struggled to file the appeal for leave case in Federal court of Canada in 2009. I held a small bible study at my home in Boca Raton, Florida. 
+
+
 **Nov. 5, 2018** <br>
 **2009 - 2011 and recession**<br>
 
