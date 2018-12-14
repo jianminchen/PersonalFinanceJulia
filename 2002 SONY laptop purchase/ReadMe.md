@@ -1,6 +1,6 @@
 **Dec. 13, 2018**
 
-I was so surprised to learn that I made a super expensive laptop. I did not fully use the laptop to do all kinds of job. It was the impulsive shopping. 
+I was so surprised to learn that I made a super expensive laptop. I did not fully use the laptop to do all kinds of job from 2002 to 2010. It was the impulsive shopping. 
 
 I still remembered that in 2002 I talked to my friend and told him that I was helping economy recovery. I invited my mom to travel to USA again after I got laidoff and stayed at home as a home maker, and then I bought most expensive laptop once I went back to FAU for PH.D. program. I was lucky to get accepted for Motorola intern program. 
 
