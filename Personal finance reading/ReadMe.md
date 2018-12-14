@@ -1,5 +1,5 @@
 
-** Dec. 13, 2018**<br>
+**Dec. 13, 2018**<br>
 
 
 It is so challenging for me to start a journey to work on my personal finance. I had over 20 years experience to work and live in north America, however I did not have chance to build wealth and I am still working hard to find solutions for myself. 
