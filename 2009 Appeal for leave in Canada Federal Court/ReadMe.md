@@ -9,4 +9,6 @@ I consulted a few Canadian immigration laywers in Feb. 2009, I was offered to pa
 
 I was advised by my friend. I do not have money and income at that time, I did file the appeal for leave by myself. I just kept making mistakes all the time until I got approval for the judge for the court date on Sept. 2009. 
 
-I saved the money and only paid efile fee. I will do a case study on this later. 
+I saved the money and only paid efile fee, I got Amtrust bank for notarized my exhibits for free in 2009, and I applied Canada visiting visa in 2009. 
+
+I will do a case study on this later. 
