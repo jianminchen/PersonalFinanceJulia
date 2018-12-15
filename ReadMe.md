@@ -14,6 +14,10 @@ I have been young, and now am old, yet I have not seen the righteous forsaken or
 **My bible study in Boca Raton home in 2008** <br>
 My christian friends in Boca Raton shared the verse with me when I struggled to file the appeal for leave case in Federal court of Canada in 2009. I held a small bible study at my home in Boca Raton, Florida. 
 
+**Luke 18:1-8**
+The Parable of the Persistent Widow<br>
+1 Then Jesus told his disciples a parable to show them that they should always pray and not give up. 2 He said: “In a certain town there was a judge who neither feared God nor cared what people thought. 3 And there was a widow in that town who kept coming to him with the plea, ‘Grant me justice against my adversary.’ 4 “For some time he refused. But finally he said to himself, ‘Even though I don’t fear God or care what people think, 5 yet because this widow keeps bothering me, I will see that she gets justice, so that she won’t eventually come and attack me!’ ” 6 And the Lord said, “Listen to what the unjust judge says. 7 And will not God bring about justice for his chosen ones, who cry out to him day and night? Will he keep putting them off? 8 I tell you, he will see that they get justice, and quickly. However, when the Son of Man comes, will he find faith on the earth?”
+
 
 **Nov. 5, 2018** <br>
 **2009 - 2011 and recession**<br>
