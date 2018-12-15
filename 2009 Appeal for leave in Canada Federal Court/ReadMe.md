@@ -1,5 +1,5 @@
 
-Dec. 13, 2018
+**Dec. 13, 2018**<br>
 
 I filed Canada skilled work immigraton case in 2007 by a consultant, and then in January 2018 my case was denied since I did not send in the bank letter with financial statement with more than $10,000 dollars. I got 45 days to turn in and then 30 days extension. The officer sent out the letter in Oct. 2008, and then waited over two months. In January 2009 my case was finalized with denial. 
 
