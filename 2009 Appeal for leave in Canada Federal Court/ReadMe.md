@@ -11,4 +11,8 @@ I was advised by my friend. I do not have money and income at that time, I did f
 
 I saved the money and only paid efile fee, I got Amtrust bank for notarized my exhibits for free in 2009, and I applied Canada visiting visa in 2009. 
 
-I will do a case study on this later. 
+I will do a case study on this later. <br>
+
+
+[My sweet case number 900-01-3438](http://juliachencoding.blogspot.com/2018/09/my-sweet-case-number-900-01-3438.html)<br>
+[What is the cash?](http://juliachencoding.blogspot.com/2018/11/what-is-cash.html)<br>
