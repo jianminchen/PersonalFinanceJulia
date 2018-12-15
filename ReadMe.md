@@ -1,7 +1,7 @@
 **Wealth, like a tree, grows from a tiny seed**<br>
 the richest man in Babylon, Georges Clason
 
-**<span style="color:brown">The repository is only for study and research purpose. I like to share the experience to help those immigrants to learn better about Canadian finance, US recession in 2009, and transition from USA to Canada. I had very struggle life in my personal finance and then I like to learn starting from August 2018.</span>** <br>
+**<span style="color:blue">The repository is only for study and research purpose. I like to share the experience to help those immigrants to learn better about Canadian finance, US recession in 2009, and transition from USA to Canada. I had very struggle life in my personal finance and then I like to learn starting from August 2018.</span>** <br>
 
 **Proverb 30:7-9**<br>
 I ask two things from you, Lord. Don't refuse me before I die. 8 Keep me from lying and being dishonest. And don't make me either rich or poor; just give me enough food for each day. 9 If I have too much, I might reject you and say, 'I don't know the Lord.' If I am poor, I might steal and disgrace the name of my God.<br>
