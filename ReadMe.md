@@ -70,3 +70,17 @@ It is the first time I did analyze the net income from 1999 to 2001, and then I 
 
 **Dec. 13, 2018**<br>
 [Case study: 2002 $1800 US dollar laptop purchase](https://github.com/jianminchen/PersonalFinanceJulia/tree/master/2002%20SONY%20laptop%20purchase)<br>
+
+
+
+**Dec.15 - Dec. 16**<br>
+
+I stayed in my home office the whole weekend. Except cooking, sleep, a few social chat with my roommates. All I did is to review personal finance data, use scanCamera app to document the expenses; I search videos to watch on youtube.com, and then I also chose some good article, books to read. 
+
+It was a marathon, I nonstopped to work on those paper work 48 hours inside my home office. I did not step outside the home. 
+
+I push myself to learn as much as I can. I also write down the content I chose to watch, read and then writes something to share. 
+
+A few blogs can be searched from here. 
+
+[MY personal finance blogs](http://juliachencoding.blogspot.com/search?q=personal+finance)<br>
