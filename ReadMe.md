@@ -88,7 +88,7 @@ A few blogs can be searched from here.
 A few blogs I like to share one by one. <br>
 [My asset in Canada in 2010](http://juliachencoding.blogspot.com/2018/12/my-canadian-asset.html)<br>
 [My first 24 months in Canada review - personal finance mistakes](http://juliachencoding.blogspot.com/2018/12/my-rich-journey-in-canada-starting-from.html)<br>
-[Learn to solve personal finance problem one by one](http://juliachencoding.blogspot.com/2018/12/it-was-more-tough-to-solve-problems.html)<br>
-2018 project management review last two weeks in December<br>
-1. [Being financial smart - my sponsor application project](http://juliachencoding.blogspot.com/2018/12/being-financial-smart-my-sponsor.html)<br>
-2. [How much I paid for private coach June 2018](http://juliachencoding.blogspot.com/2018/12/how-much-i-paid-for-private-coach-june.html)<br>
+[Learn to solve personal finance problem one by one](http://juliachencoding.blogspot.com/2018/12/it-was-more-tough-to-solve-problems.html)<br><br>
+**2018 project management review last two weeks in December**<br>
+[Being financial smart - my sponsor application project](http://juliachencoding.blogspot.com/2018/12/being-financial-smart-my-sponsor.html)<br>
+[How much I paid for private coach June 2018](http://juliachencoding.blogspot.com/2018/12/how-much-i-paid-for-private-coach-june.html)<br>
