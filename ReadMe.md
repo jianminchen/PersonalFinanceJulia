@@ -87,3 +87,4 @@ A few blogs can be searched from here.
 
 A few blogs I like to share one by one. <br>
 [My first 24 months in Canada review - personal finance mistakes](http://juliachencoding.blogspot.com/2018/12/my-rich-journey-in-canada-starting-from.html)<br>
+[Learn to solve personal finance problem one by one](http://juliachencoding.blogspot.com/2018/12/it-was-more-tough-to-solve-problems.html)<br>
