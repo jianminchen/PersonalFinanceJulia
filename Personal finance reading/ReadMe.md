@@ -1,4 +1,7 @@
 
+**Wealth, like a tree, grows from a tiny seed**<br>
+the richest man in Babylon, Georges Clason<br>
+
 **Dec. 13, 2018**<br>
 
 

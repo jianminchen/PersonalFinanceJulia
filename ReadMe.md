@@ -11,7 +11,7 @@ I ask two things from you, Lord. Don't refuse me before I die. 8 Keep me from ly
 I have been young, and now am old, yet I have not seen the righteous forsaken or his children begging for bread.<br>
 
 **My bible study in Boca Raton home in 2008** <br>
-My christian friends in Boca Raton shared the verse with me when I struggled to file the appeal for leave case in Federal court of Canada in 2009. I held a small bible study at my home in Boca Raton, Florida. 
+My christian friends in Boca Raton shared the verse with me when I struggled to file the appeal for leave case in Federal court of Canada in 2009. I held a small bible study at my home in Boca Raton, Florida a few weekends in 2009.  
 
 **Luke 18:1-8**
 The Parable of the Persistent Widow<br>
@@ -70,3 +70,25 @@ It is the first time I did analyze the net income from 1999 to 2001, and then I 
 
 **Dec. 13, 2018**<br>
 [Case study: 2002 $1800 US dollar laptop purchase](https://github.com/jianminchen/PersonalFinanceJulia/tree/master/2002%20SONY%20laptop%20purchase)<br>
+
+
+
+**Dec.15 - Dec. 16**<br>
+
+I stayed in my home office the whole weekend. Except cooking, sleep, a few social chat with my roommates. All I did is to review personal finance data, use scanCamera app to document the expenses; I search videos to watch on youtube.com, and then I also chose some good article, books to read. 
+
+It was a marathon, I nonstopped to work on those paper work 48 hours inside my home office. I did not step outside the home. 
+
+I push myself to learn as much as I can. I also write down the content I chose to watch, read and then writes something to share. 
+
+A few blogs can be searched from here. 
+
+[MY personal finance blogs](http://juliachencoding.blogspot.com/search?q=personal+finance)<br>
+
+A few blogs I like to share one by one. <br>
+[My asset in Canada in 2010](http://juliachencoding.blogspot.com/2018/12/my-canadian-asset.html)<br>
+[My first 24 months in Canada review - personal finance mistakes](http://juliachencoding.blogspot.com/2018/12/my-rich-journey-in-canada-starting-from.html)<br>
+[Learn to solve personal finance problem one by one](http://juliachencoding.blogspot.com/2018/12/it-was-more-tough-to-solve-problems.html)<br><br>
+**2018 project management review last two weeks in December**<br>
+[Being financial smart - my sponsor application project](http://juliachencoding.blogspot.com/2018/12/being-financial-smart-my-sponsor.html)<br>
+[How much I paid for private coach June 2018](http://juliachencoding.blogspot.com/2018/12/how-much-i-paid-for-private-coach-june.html)<br>
