@@ -21,7 +21,7 @@ The Parable of the Persistent Widow<br>
 **Nov. 5, 2018** <br>
 **2009 - 2011 and recession**<br>
 
-I experienced the tough time in USA after 2018. USA was in recesison in 2009, a lot of property in Florida was underwater. I managed to make a living from August 2008 to April 2010, live on savings and with low interest rate of home equity loan. 
+I experienced the tough time in USA after 2008. USA was in recesison in 2009, a lot of property in Florida was underwater. I managed to make a living from August 2008 to April 2010, live on savings and with low interest rate of home equity loan. 
 
 I had difficulty time to adapt and hop on the opportunity in the city of Vancouver. Although at that time I thought that I did right thing in Nov. 2011, I got loan approved but I did not take it. Actually I missed the opportunity I had in Canada. 
 
