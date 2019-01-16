@@ -5,3 +5,5 @@ I just could not believe that I spent over $5,000 dollars on those clothings.<br
 
 It does take patience to learn how to do analysis using Excel sheet, and work with pivot table. It is so important for me to learn  budget, review and audit the expenses. It is personal choice to invest money to grow rich or spend money on extra clothings. But overlong run, those money on clothings are wasted.  <br>
 
+Those clothings are still very good quality after 20 years. But I have to learn that those money can be used for better purpose in my life. 
+
