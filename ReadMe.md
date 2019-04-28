@@ -65,7 +65,7 @@ It is the first time I did analyze the net income from 1999 to 2001, and then I 
 [Save money up to $100,000 dollars](http://juliachencoding.blogspot.com/2018/11/save-money-up-to-100000-dollars.html)<br>
 
 **Nov. 21, 2018**<br>
-[Do I live under my mean in Canada?](http://juliachencoding.blogspot.com/2018/11/do-i-live-under-my-mean-in-canada.html)<br>
+[Do I live under my means in Canada?](http://juliachencoding.blogspot.com/2018/11/do-i-live-under-my-mean-in-canada.html)<br>
 
 
 **Dec. 13, 2018**<br>
