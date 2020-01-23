@@ -92,3 +92,11 @@ A few blogs I like to share one by one. <br>
 **2018 project management review last two weeks in December**<br>
 [Being financial smart - my sponsor application project](http://juliachencoding.blogspot.com/2018/12/being-financial-smart-my-sponsor.html)<br>
 [How much I paid for private coach June 2018](http://juliachencoding.blogspot.com/2018/12/how-much-i-paid-for-private-coach-june.html)<br>
+
+**Jan. 22, 2020**<br>
+I found out that my biggest financial mistake in May 2019. I did buy high and sell low in 2009, and then moved my USA 401 K and IRA to money market fund. However, there is a 10 year bull market, S & P 500 index went up 300%. 
+I worked on a few portfolios, and then put together some asset allocation. 
+I just finished my first rebalance of Key Largo portfolio, Victoria portfolio. 
+[Here](https://juliachencoding.blogspot.com/2020/01/key-largo-portfolio-first-rebalance.html
+) is Key Largo rebalance's blog. 
+[Here](https://juliachencoding.blogspot.com/2020/01/victoria-portfolio-first-rebalance.html) is Victoria rebalance's blog. 
